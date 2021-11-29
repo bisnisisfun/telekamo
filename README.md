@@ -1,0 +1,2 @@
+# telekamo
+21atXrAHEHOw9UIB4LMCmshpCqI_3hx15DK8FYtFrkWiiZPFz
